@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @HardlyAwake
 - 👀 I’m interested in Coding/Hacking stuffs...
 - 🌱 I’m currently learning ...Python & Java
-- 💞️ I’m looking to collaborate on Not Planned Yet
+- 💞️ I’m looking to collaborate....Tesla:)
 - 📫 How to reach me email : matalemayur78@gmail.com
 - Mob No: 9022446803
 
